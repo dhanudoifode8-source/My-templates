@@ -13,4 +13,3 @@ What you get:
 Canva Links yaha ayenge (baad me)
 
 Instagram: @template.factory
-Or ye code...?
