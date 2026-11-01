@@ -13,3 +13,5 @@ What you get:
 Canva Links yaha ayenge (baad me)
 
 Instagram: @template.factory
+
+DM to buy: @template.factory
