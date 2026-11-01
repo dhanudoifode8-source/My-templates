@@ -1,4 +1,4 @@
-# My-templates
+# My-Templates
 30 viral asthetic instagram story templates
 
 # 🔥 30 VIRAL AESTHETIC TEMPLATES
